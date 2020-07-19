@@ -1,2 +1,2 @@
 # Megumi
-#shining spirits sparking spread somewhere#
+#shining spirits sparkingly spread somewhere#
